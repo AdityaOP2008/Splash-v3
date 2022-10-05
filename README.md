@@ -6,4 +6,4 @@ __Download the zip file and extract then host wherever you want.__
 
 __© Ishh 2021-2025__
 
-<b>SPLASH ON TOP, BAE?</b>
+<b>SPLASH AND ISHH ON TOP, BAE?</b>
